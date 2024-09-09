@@ -3,7 +3,7 @@
 <img align="left" width="170" height="150" src="https://github.com/user-attachments/assets/5fb46b6b-ab81-4092-a035-484082e207d8">
 
 
-### I'm a 3rd Year Neuroscience Student at Dalhousie University and I have a really silly cat named Leo! 💌
+### I'm a 3rd Year Neuroscience Student at Dalhousie University and I have a really silly cat named Leo 💌
 
 
 <details>
