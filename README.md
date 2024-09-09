@@ -1,6 +1,7 @@
 ###### (She/Her)
 # Hi my name is Rafiah! 🪴🪐🏔🧸🌻
-<img align="left" width="170" height="150" src="https://github.com/user-attachments/assets/0533a986-69ec-4c9a-acf8-9bddf4421a1d">
+<img align="left" width="170" height="150" src="https://github.com/user-attachments/assets/5fb46b6b-ab81-4092-a035-484082e207d8">
+
 
 ### I'm a 3rd Year Neuroscience Student at Dalhousie University and I have a really silly cat named Leo! 💌
 
